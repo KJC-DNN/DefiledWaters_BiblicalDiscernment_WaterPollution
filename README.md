@@ -9,8 +9,6 @@ Covers how cultures misuse waters to feed dark spirits, dead spirits, and human 
 - [Full Article PDF](./DefiledWaters_BiblicalDiscernment.pdf)  
 - [Cover Image](./DefiledWaters_Cover.jpg)
 
-Read the full article below or in PDF.
-
 Remnant, Tamil Intercessor  
 KJC-DNN Organization  
 February 2026
